@@ -1,4 +1,4 @@
-
+new Script for math for brainrots offers the most advanced math for brainrots Script, with god mode and anti-ban. Perfect for dominating any match.
 
 
 
